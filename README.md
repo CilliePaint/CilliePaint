@@ -1,0 +1,4 @@
+- Howdy howdy, my name is Mooch!
+- I am a independant Programmer who just likes doing projects from time to time.
+- I also do other stuff, like art!
+- You can also find me on Discord, @cilpaint
